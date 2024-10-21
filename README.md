@@ -5,10 +5,9 @@
 - 
 Meu filme favorido é "Como perder um homem em 10 dias"
 
-![](https://tenor.com/pt-BR/view/you-let-it-die-kate-hudson-plant-angry-gif-12143376).
+![](https://media1.tenor.com/m/CI4iH7yS1sIAAAAC/movies-excited.gif)
 
 ## Entre em contato comigo ##
 anna.milani.marin@escola.pr.gov.br
 
 
-![](https://tenor.com/pt-BR/view/movies-excited-yes-win-winning-gif-14851522)
