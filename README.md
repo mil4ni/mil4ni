@@ -1,6 +1,6 @@
 ## 👋 Oi, meu nome é Anna ##
 - Estudante do JavaScript
-- 🩵 Sonho em passar em medicina
+- 💙 Sonho em passar em medicina
 - 📘 Gosto de estudar biologia
 - 
 Meu filme favorido é "Como perder um homem em 10 dias"
