@@ -2,9 +2,10 @@
 - Estudante do JavaScript
 - 🩵 Sonho em passar em medicina
 - 📘 Gosto de estudar biologia
+- 
 Meu filme favorido é "Como perder um homem em 10 dias"
 
-![.](https://tenor.com/pt-BR/view/poor-guy-how-to-lose-a-guy-in-ten-days-how-to-lose-a-guy-andie-anderson-kate-hudson-gif-11721182).
+![.](https://tenor.com/pt-BR/view/you-let-it-die-kate-hudson-plant-angry-gif-12143376).
 
 ## Entre em contato comigo ##
 anna.milani.marin@escola.pr.gov.br
